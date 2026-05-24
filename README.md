@@ -29,3 +29,12 @@ Car Door Protection
 * **適用車款**：通用型設計 (Universal Fit)，適用於市面上絕大多數鐵質車門車款（如 Toyota, Honda, Ford, Nissan, Mercedes-Benz, BMW, Volvo 等部分車款）。
 * **不適用材質**：不適用於「鋁合金車門」車 hot-stamped aluminum doors（因鋁合金無磁性無法直接磁吸）。
 * **鋁合金車主替代方案**：鋁合金車門車款（如部分 Tesla, Audi, 高階進口車款），需另行使用隨附的吸盤系統進行外掛固定。
+
+蝦皮賣場連結
+https://shopee.tw/product/3251221/8624717
+
+FB粉絲專頁
+https://www.facebook.com/CarDoorGuard
+
+IG粉絲頁
+https://www.instagram.com/loris.bumper
